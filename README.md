@@ -1,0 +1,2 @@
+# Black-Galaxy-Granite-Kitchen-Countertop-Stylish-Durable-Finish-Dollar-Exim
+Enhance your kitchen with the timeless beauty of Black Galaxy Granite, known for its star-like speckles and rich black tone. Perfect for modern interiors, this countertop by Dollar Exim offers durability, easy maintenance, and a luxurious finish. Ideal for kitchens, bathrooms, and commercial spaces.  dollareximpvt@gmail.com  
